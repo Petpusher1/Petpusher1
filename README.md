@@ -6,5 +6,5 @@ I have been researching genetics and can't wait to discover or refine genes with
 Next spring I will start breeding corn snakes, and perhaps the following year I will breed garter snakes as well.
 I have experience as a reptile, birds and small animal specialist for 15 years.
 I am certified in dog training for obedience, trick training, K-9 good citizen, hunting and service animal's.
-I am certified in K-9 and Feline nutrician.
+I am also certified in K-9 and Feline nutrician.
 --->
